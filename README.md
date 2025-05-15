@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Thalita Silva 😁
+## Bem-vindo(a) ao perfil da Thalita Silva ✨
 
  <div>
    <a href="https://github.com/thalitasilva620">
